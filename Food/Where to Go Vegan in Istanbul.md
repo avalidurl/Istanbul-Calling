@@ -24,7 +24,7 @@ In our day, even döner shoppes offer vegetarian options. However, I think many 
  - [**Bi Nevi Deli**](https://binevideli.com/), Etiler District, Beşiktaş County, [MAP](https://maps.app.goo.gl/Qwspf6Ra3mLjmg9Y6), Restaurant \[Paleo options\]
 ## **Grocery/ Food Apps**
 
-[**Fuudy**](https://fuudy.co/)**:** Rich in Vegan portfolio of restraurents, supermarkets and shops
+[**Fuudy**](https://fuudy.co/)**:** Rich in Vegan portfolio of restraurants, supermarkets and shops
 
 [**Macrocenter:**](https://www.macrocenter.com.tr/) Rather highish end franchise by Migros Türkiye where you can buy variety of extra options when it comes to groceries—also, if you are an omnivore, their selection to your taste in any terms is quite alright. The app re-directs to Migros superapp in which you can choose Macroonline, it has English language version. 3 to 5 Star Migros markets are OK, too.
 

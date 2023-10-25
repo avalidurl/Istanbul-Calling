@@ -32,4 +32,4 @@ In our day, even döner shoppes offer vegetarian options. However, I think many 
 
 ### Final Notes
 
-Many local coffee shops and most of the time international ones, too, offer vegan, gluten-free snacks. My favorite ones are [Espresso Lab](https://en.espressolab.com/), [Juan Valdez](https://www.juanvaldezcoffee.com.tr/), and [People of Coffee](https://www.peopleofcoffee.com.tr/). Some Starbucks branches are, too, good, and have some of the best baristas. Café Nerro would be other option. You can asses the shoppe you set a foot in yourselves, too, and offer amendments to do list by sending a request via git.
+Many local coffee shops and most of the time international ones, too, offer vegan, gluten-free snacks. My favorite ones are [Espresso Lab](https://en.espressolab.com/), [Juan Valdez](https://www.juanvaldezcoffee.com.tr/), and [People of Coffee](https://www.peopleofcoffee.com.tr/). Some Starbucks branches are, too, good, and have some of the best baristas. Café Nerro would be another option. You can asses the shoppe you set a foot in yourselves, too, and offer amendments to do list by sending a request via git.

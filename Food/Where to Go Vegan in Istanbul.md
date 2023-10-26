@@ -13,15 +13,15 @@ In our day, even döner shoppes offer vegetarian options. However, I think many 
 
 ## Restaurant List
 
- - [**Vegan İstanbul**](https://www.veganistanbul34.com/), Cihangir District, Beyoğlu County, [MAP](https://maps.app.goo.gl/Bz74WT1UX3w6KAk77), Restaurant/ Groceries
- - [**Vegan Food Cartel**](https://www.veganfoodcartel.com/),  Taksim District, Beyoğlu County, [MAP](https://maps.app.goo.gl/qTvUVnBoYEAvWmdQA), Restaurant
- - [**Healin**](https://healinfoods.com/), Teşvikiye/ Nişantaşı District, Şişli County, [MAP](https://maps.app.goo.gl/VJdhrmrdeCgp59jV9), Restaurant/ Shop
- - [**Avokado Bar**](https://www.instagram.com/avokadobar.ist/?hl=en), Teşvikiye/ Nişantaşı District, Şişli County, [MAP](https://maps.app.goo.gl/Ps2J7nUseAwsp7WA7), Resturant/ Coffeeshop
- - [**Tahin**](https://tahin.com.tr/), Karaköy District, Beyoğlu County, [MAP](https://maps.app.goo.gl/32booR75FszLdyRC8), Restaurant \[Omnivore options w/ vegan selections\]
- - [**Vegan Community Kitchen**](https://www.instagram.com/community_kitchen/?hl=en), Balat District, Fatih County, [MAP](https://maps.app.goo.gl/v9VpZkYikEcQJAxz9), Restaurant
- - [**Veganarsis Türkiye**](https://www.instagram.com/veganarsistt/), Balat District, Fatih County, [MAP](https://maps.app.goo.gl/ARrxUiEZtpnVHNrz7), Restaurant
+ - [**Vegan İstanbul**](https://www.veganistanbul34.com/), Cihangir Neighbourhood, Beyoğlu County, [MAP](https://maps.app.goo.gl/Bz74WT1UX3w6KAk77), Restaurant/ Groceries
+ - [**Vegan Food Cartel**](https://www.veganfoodcartel.com/),  Taksim Neighbourhood, Beyoğlu County, [MAP](https://maps.app.goo.gl/qTvUVnBoYEAvWmdQA), Restaurant
+ - [**Healin**](https://healinfoods.com/), Teşvikiye/ Nişantaşı Neighbourhood, Şişli County, [MAP](https://maps.app.goo.gl/VJdhrmrdeCgp59jV9), Restaurant/ Shop
+ - [**Avokado Bar**](https://www.instagram.com/avokadobar.ist/?hl=en), Teşvikiye/ Nişantaşı Neighbourhood, Şişli County, [MAP](https://maps.app.goo.gl/Ps2J7nUseAwsp7WA7), Resturant/ Coffeeshop
+ - [**Tahin**](https://tahin.com.tr/), Karaköy Neighbourhood, Beyoğlu County, [MAP](https://maps.app.goo.gl/32booR75FszLdyRC8), Restaurant \[Omnivore options w/ vegan selections\]
+ - [**Vegan Community Kitchen**](https://www.instagram.com/community_kitchen/?hl=en), Balat Neighbourhood, Fatih County, [MAP](https://maps.app.goo.gl/v9VpZkYikEcQJAxz9), Restaurant
+ - [**Veganarsis Türkiye**](https://www.instagram.com/veganarsistt/), Balat Neighbourhood, Fatih County, [MAP](https://maps.app.goo.gl/ARrxUiEZtpnVHNrz7), Restaurant
  - [**Vegan Masa**](https://www.instagram.com/veganmasa/), Beşiktaş County, [MAP](https://maps.app.goo.gl/uL5GGo4NoPj1nVQ17), Restaurant
- - [**Bi Nevi Deli**](https://binevideli.com/), Etiler District, Beşiktaş County, [MAP](https://maps.app.goo.gl/Qwspf6Ra3mLjmg9Y6), Restaurant \[Paleo options\]
+ - [**Bi Nevi Deli**](https://binevideli.com/), Etiler Neighbourhood, Beşiktaş County, [MAP](https://maps.app.goo.gl/Qwspf6Ra3mLjmg9Y6), Restaurant \[Paleo options\]
 ## **Grocery/ Food Apps**
 
 [**Fuudy**](https://fuudy.co/)**:** Rich in Vegan portfolio of restraurants, supermarkets and shops

@@ -1,5 +1,5 @@
 # Where to Go Vegan in Istanbul?
-Below is a rather simple list of vegan options within the periphery of ZuConnect pop-up village. However, if you are cooking yourself just as I do, I’ll also provide some grocery store delivery apps, too. Nevermind the mumblecore below. You can directly skip to the list. 
+Below is a rather simple list of vegan options. However, if you are cooking yourself just as I do, I’ll also provide some grocery store delivery apps, too. Nevermind the mumblecore below. You can directly skip to the list. 
 
 Please be advised, though: I am not an affiliate of these places, and writing this just out of good will. If you find better places, feel free to send a request.
 
